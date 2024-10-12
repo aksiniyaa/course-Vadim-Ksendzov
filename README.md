@@ -1,1 +1,1 @@
-# course-Vadim-Ksendzov
+# course-Vadim-Ksendzov-theory
